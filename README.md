@@ -27,5 +27,5 @@ Mi nombre en redes es @antoniiioriiios y las redes en las que me puedes encontra
 
 ### Una foto de mí
 
-![Esta es una foto de cuando yo era pequeño, sentado en las escaleras de mi casa](WhatsApp%20Image%202024-09-18%20at%2018.16.55.jpeg)
+![Esta es una foto de cuando yo era pequeño, sentado en las escaleras de mi casa](WhatsApp%20Image%202024-09-18%20at%2018.16.54.jpeg)
   
